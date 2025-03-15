@@ -2,7 +2,7 @@
 - 👀 I’m interested in photography
 - 🌱 I’m currently learning python & photoshop
 - 💞️ I’m looking to collaborate on python
-- 📫 How to reach me : hellotshid@gmail.com
+- 📫 How to reach me : hellotoshid@gmail.com
 - 😄 Pronouns: joyful,optimistic & adaptable
 - ⚡ Fun fact: I am not fun
 
